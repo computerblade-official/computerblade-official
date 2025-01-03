@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+make sure to check out my W website: [https://computerblade.is-a.dev/](https://computerblade.is-a.dev/)
+and my W socials which are below my pfp
